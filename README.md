@@ -2,3 +2,4 @@
 - i will not let you skid my work or my friends work (https://github.com/BloxinStud10/Epiconister) especially you Melon
 - dont skid from my page or i doxx you
 - any pronouns 
+- please dont shitting on me using skiddy fuckery or ill block u
