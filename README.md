@@ -1,5 +1,7 @@
 - hi chat its me pepfre wtf is up broskie
-- i will not let you skid my work or my friends work (https://github.com/BloxinStud10/Epiconister) especially you Melon
+- i will not let you skid my work or my friends work (https://github.com/BloxinStud10/Epiconister) especially you melon
 - dont skid from my page or i doxx you
 - any pronouns 
 - please dont shitting on me using skiddy fuckery or ill block u
+- i hate melon
+- dont be use skiddy scripts in my presence or i block u too
